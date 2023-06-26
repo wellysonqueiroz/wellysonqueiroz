@@ -18,5 +18,5 @@
 
 ### Apaixonado por tecnologia, pra cima🚀
 
-### Apaixonado por tecnologia, pra cima🚀
+
 
